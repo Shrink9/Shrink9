@@ -3,4 +3,4 @@
 - 🌱 I’m currently learning website making.
 - 💞️ I’m looking to collaborate on website making.
 - 📫 Attach me by Wechat:HexFFFFFFFF or QQ:1921834559.
-
+- 👀 Please refer http://www.shrink.fun/about-me.html to get more detail about me.
